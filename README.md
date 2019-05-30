@@ -16,4 +16,4 @@ Dana Marin Garcia.
 
 DUE DATE:
 
-Jun 1st.
+June 1st.
